@@ -1,3 +1,3 @@
-Hello I amn arafat 👋
+Hello I am arafat 👋
 
 
